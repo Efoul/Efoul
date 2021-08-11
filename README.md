@@ -15,4 +15,4 @@ Udh gede luhhhh tpi ttp kau jdi bocilkuhhh awowkwok
 Dah segtu aja yahh aku gk jago merangkai kata2 soalnya
 Jagonya mencintaimu sungguh2 (+jago diranjang)
 
-Aku sayang kamu 💞
+Aku sayang kamu 💞 
